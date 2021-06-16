@@ -1,5 +1,4 @@
-Red velvet Cake Ingrediants are.....
-
+Ingredients are
 
  1.   1 1/2 cups all purpose flour
  2.   1/4 cup dutch proccess cocoa flour
